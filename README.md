@@ -1,4 +1,2 @@
-![Black_pearl_title_asset_animation](https://github.com/user-attachments/assets/d9686820-2a1f-4e99-9993-11dfa4b23b0c)
-
-
-idk what to put here anyways black pearl cookie heh
+![Không Có Tiêu Đề169_20250623152110](https://github.com/user-attachments/assets/ff9b279b-0466-4094-b343-98c978ebbd79)
+𓎢𓎠[୨ Linktree ! ৎ](https://linktr.ee/InkedWithAffection) 𓎢𓎡 [୨ Atabook ! ৎ](https://sweetmails.atabook.org)𓎠𓎡
