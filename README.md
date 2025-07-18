@@ -8,3 +8,8 @@
 ︶ ⏝︶︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶︶ ⏝ ︶
 ![Không Có Tiêu Đề169_20250623152152](https://github.com/user-attachments/assets/872e1903-76b4-417e-8ed9-843eec867631)
 ︶ ⏝︶︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶︶ ⏝ ︶
+
+
+
+
+life is getting worse, i might kill myself
