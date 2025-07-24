@@ -8,3 +8,10 @@
 ︶ ⏝︶︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶︶ ⏝ ︶
 ![Không Có Tiêu Đề169_20250623152152](https://github.com/user-attachments/assets/872e1903-76b4-417e-8ed9-843eec867631)
 ︶ ⏝︶︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶︶ ⏝ ︶
+
+small notes about me before you Interact!! :
+
+- im nice.....DONT THINK ILL BITE OR EXECUTEYOU!!!!
+- I may be awkward but I PROMISE ILL TALK TO YOU IFF YOU LIKE TO!!!
+- if i BEFRIENDED SOMEONE whos problematic, or toxic....let...me ...knoww..... PLEASE!!/gen
+- get 2 know me more at strawwpaaggee.......
