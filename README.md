@@ -13,5 +13,6 @@ small notes about me before you Interact!! :
 
 - im nice.....DONT THINK ILL BITE OR EXECUTEYOU!!!!
 - I may be awkward but I PROMISE ILL TALK TO YOU IFF YOU LIKE TO!!!
+- I may not be a great comforter, but you are free to vent 2 me!!^_^^
 - if i BEFRIENDED SOMEONE whos problematic, or toxic....let...me ...knoww..... PLEASE!!/gen
 - get 2 know me more at strawwpaaggee.......
