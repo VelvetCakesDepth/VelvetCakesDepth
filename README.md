@@ -1,3 +1,5 @@
+i give clover / pearl = you are cool /silly
+
 ︶ ⏝︶︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶︶ ⏝ ︶
 
 ![Không Có Tiêu Đề169_20250623152110](https://github.com/user-attachments/assets/ff9b279b-0466-4094-b343-98c978ebbd79)
