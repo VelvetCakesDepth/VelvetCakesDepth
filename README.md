@@ -19,4 +19,4 @@ small notes about me before you Interact!! :
 - if i BEFRIENDED SOMEONE whos problematic, or toxic....let...me ...knoww..... PLEASE!!/gen
 - get 2 know me more at strawwpaaggee.......
 
-hi
+imagine liking gifting skins... couldn't be me!
