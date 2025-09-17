@@ -20,3 +20,5 @@ small notes about me before you Interact!! :
 - get 2 know me more at strawwpaaggee.......
 
 imagine liking gifting skins... couldn't be me!
+
+you rant about your partner to me = i shame you!/hvyj 
