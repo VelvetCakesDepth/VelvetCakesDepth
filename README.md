@@ -21,4 +21,4 @@ small notes about me before you Interact!! :
 
 imagine liking gifting skins... couldn't be me!
 
-you rant about your partner to me = i shame you!/hvyj 
+your f/o loves you twin 🥹🌹
